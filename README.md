@@ -1,5 +1,5 @@
 # Hi, I'm  ASHBIN K GEORGE👋🏾🧑🏽‍💻
-FIguring out tech!...
+Figuring out tech!...
 
 ---
 
